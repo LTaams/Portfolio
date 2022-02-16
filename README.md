@@ -10,3 +10,5 @@ Eno worked with U2 on the Joshua Tree (amongst other things), but employed a muc
 the rise of 'dance' and electronic music in the 90's, shaped the stylistic choices made by the band throughout the 90's. With these choices they both lost and 
 gained some fans.
 I am curious to see how these periods compare, and how we can use spotify to dive into this topic.
+
+A typical track for what I would call the 'early' period is "Sunday Bloody Sunday" (Joshua Tree). It is a punkrock song of protest, perfectly fitting the themes and feel of their (previous) albums. A typical track for the late period would be "Zooropa" (Zooropa), and experimental track that is especially adverse when compared to 'Sunday Bloody Sunday'. Now, there aren't many atypical tracks in the early period, but tracks like 'One' (Achtung Baby) and 'Stay (Faraway, so close)' (Zooropa) are very atypical inbetween their work in the 90's.
